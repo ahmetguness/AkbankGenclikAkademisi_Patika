@@ -1,0 +1,1 @@
+# AkbankGenclikAkademisi_Patika
